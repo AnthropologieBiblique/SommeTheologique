@@ -3,7 +3,7 @@ tags :
 - Summa/IIa-IIæ/q.8/a.3
 ---
 
-### Cette intelligence, qui. est un don du Saint-Esprit, est-elle seulement spéculative, ou aussi pratique?
+### Cette intelligence, qui est un don du Saint-Esprit, est-elle seulement spéculative, ou aussi pratique?
 
 ###### arg. 1
 Selon toute apparence, elle n'est pas pratique, mais spéculative seulement. En effet, l'intelligence, dit S. Grégoire, " pénètre des réalités plus hautes ". Mais les réalités ressortissant à l'intellect pratique ne sont pas élevées, ce sont des choses minimes: les particularités qui sont la matière même de nos actes. L'intelligence que l'on tient pour un don n'est donc pas une intelligence pratique. 
@@ -24,7 +24,7 @@ Le don d'intelligence, nous venons de le dire, s'applique non seulement à ce qu
 Les actions humaines, considérées en elles-mêmes, n'ont pas une haute excellence. Mais, en tant qu'elles se réfèrent à la règle de la loi éternelle et à la fin de la béatitude divine, elles prennent assez d'altitude pour que l'intelligence puisse s'en occuper. 
 
 ###### ad 2
-Ce qui fait la dignité du don d'intelligence c'est qu'il regarde les réalités intelligibles qui son éternelles ou nécessaires, non seulement comme elles sont en elles-mêmes, mais aussi en tant qu'elles sont des règles pour les actes humains car la connaissance qui s'étend à des objets plus nombreux en devient plus noble. 
+Ce qui fait la dignité du don d'intelligence c'est qu'il regarde les réalités intelligibles qui sont éternelles ou nécessaires, non seulement comme elles sont en elles-mêmes, mais aussi en tant qu'elles sont des règles pour les actes humains car la connaissance qui s'étend à des objets plus nombreux en devient plus noble. 
 
 ###### ad 3
 Les actes humains ont pour règle, avons nous dit plus haut, et la raison humaine et la loi éternelle. Or la loi éternelle dépasse la raison naturelle. C'est pour cela que la connaissance des actes humains, en tant qu'ils sont réglés par la loi éternelle, dépasse la raison naturelle et a besoin de la lumière surnaturelle que lui procure le don de l'Esprit Saint. 

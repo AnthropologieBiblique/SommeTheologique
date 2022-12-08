@@ -24,7 +24,7 @@ Tous ceux qui sont énumérés dans la généalogie du Christ ont eu des pères 
 il y a l'autorité de l'Écriture. 
 
 ###### resp.
-Selon S. Paul (2 Tm 3, 16): " Toute, l’Écriture sainte est inspirée par Dieu. " Or ce qui est fait par Dieu s'accomplit dans un ordre parfait selon cette parole (Rm 13, 1): " Tout ce qui vient de Dieu est parfaitement ordonné. " Donc la généalogie du Christ a été présentée par les évangélistes dans un ordre satisfaisant. 
+Selon S. Paul (2 Tm 3, 16): " Toute l’Écriture sainte est inspirée par Dieu. " Or ce qui est fait par Dieu s'accomplit dans un ordre parfait selon cette parole (Rm 13, 1): " Tout ce qui vient de Dieu est parfaitement ordonné. " Donc la généalogie du Christ a été présentée par les évangélistes dans un ordre satisfaisant. 
 
 ###### ad 1
 Comme dit S. Jérôme, Isaïe parle de la génération divine du Christ, tandis que Matthieu rapporte sa génération humaine. Non qu'il explique le mode de l'Incarnation, qui est inexplicable, mais il énumère les ancêtres desquels le Christ procède selon la chair. 

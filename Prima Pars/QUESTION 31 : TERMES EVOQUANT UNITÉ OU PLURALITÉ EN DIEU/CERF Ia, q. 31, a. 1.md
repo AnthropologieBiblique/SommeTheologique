@@ -27,7 +27,7 @@ S. Athanase écrit : « On doit adorer l'unité dans la trinité et la trinité 
 Quand il s'agit de Dieu, le terme « trinité » évoque le nombre précis des personnes. Donc, de même qu'on reconnaît une pluralité de personnes en Dieu, il y a lieu de faire appel au mot trinité ; car cela même que « pluralité » signifie en général, le terme « trinité » le signifie de manière précise et déterminée. 
 
 ###### ad 1
-Étymologiquement, le mot trinité paraît signifier l'unique essence des trois Personnes, trinitas étant mis pour triumunitas. Mais ce qu'il signifie à proprement parler, c'est plutôt le nombre des personnes de l'unique essence ; aussi ne peut-on pas dire : « le Père est la trinité », car il n'est pas les trois personnes. En outre, il ne signifie pas les relations en tant que telles, mais plutôt le nombre des personnes en relation les unes avec les autres, et c'est pourquoi il ne se construit pas grammaticalement comme un relatif. 
+Étymologiquement, le mot trinité paraît signifier l'unique essence des trois Personnes, *trinitas* étant mis pour *triumunitas*. Mais ce qu'il signifie à proprement parler, c'est plutôt le nombre des personnes de l'unique essence ; aussi ne peut-on pas dire : « le Père est la trinité », car il n'est pas les trois personnes. En outre, il ne signifie pas les relations en tant que telles, mais plutôt le nombre des personnes en relation les unes avec les autres, et c'est pourquoi il ne se construit pas grammaticalement comme un relatif. 
 
 ###### ad 2
 Dans sa signification, le nom collectif implique deux choses : une pluralité de suppôts, et une certaine unité entre eux, qui est l'unité d'un ordre. Un peuple, par exemple, est une multitude d'hommes soumis à un certain ordre. Donc, si l'on s'en tient à la première condition, « trinité » rentre dans la catégorie des noms collectifs. Mais il en diffère quant à la seconde : dans la trinité divine, il n'y a pas seulement unité d'ordre, il y a en outre unité d'essence. 
@@ -39,7 +39,7 @@ Dans sa signification, le nom collectif implique deux choses : une pluralité de
 Dans la trinité divine, il y a à considérer un nombre et les personnes dénombrées. Donc, quand on dit « la trinité dans l'unité », on n'introduit pas le nombre dans l'unité de l'essence, comme si elle était trois fois une ; on pose simplement les trois personnes dans l'unique nature, comme on dit des suppôts d'une nature qu'ils subsistent en cette nature-là. Inversement, on dit «l'unité dans la trinité », comme on dit qu'une nature existe en ses suppôts. 
 
 ###### ad 5
-Dans trinitas est trina, le prédicat signifie la multiplication de trois par lui-même ; car trina pose une tridistinction dans le sujet auquel on l'attribue. On ne peut donc pas dire : trinitas est trina : il s'ensuivrait qu'il y a trois suppôts de la trinité, de même que, si je dis « Dieu est trine », il s'ensuit qu'il y a trois suppôts de la déité. 
+Dans *trinitas est trina*, le prédicat signifie la multiplication de trois par lui-même ; car *trina* pose une tridistinction dans le sujet auquel on l'attribue. On ne peut donc pas dire : *trinitas est trina* : il s'ensuivrait qu'il y a trois suppôts de la trinité, de même que, si je dis « Dieu est trine », il s'ensuit qu'il y a trois suppôts de la déité. 
 
 
 

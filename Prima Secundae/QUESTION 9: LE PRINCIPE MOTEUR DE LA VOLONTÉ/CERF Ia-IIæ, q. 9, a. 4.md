@@ -1,7 +1,6 @@
 ---
 tags : 
 - Summa/Ia-IIæ/q.9/a.4
-- modifié
 ---
 
 ### La volonté est-elle mue par un principe extérieur?

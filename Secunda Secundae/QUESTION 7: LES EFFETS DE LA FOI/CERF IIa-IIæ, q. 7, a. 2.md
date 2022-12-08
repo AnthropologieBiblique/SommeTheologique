@@ -28,8 +28,3 @@ Même informe, la foi exclut une certaine impureté qui lui est opposée: l'impu
 
 ###### ad 3
 L'obscurité de la foi ne relève pas de l'impureté de la faute, mais plutôt du défaut naturel de l'intelligence humaine dans l'état de la vie présente. 
-
-Il faut étudier maintenant ce qui concerne le don d'intelligence (Q. 8) et le don de science (Q. 9), qui correspondent à la vertu de foi. 
-
-Somme Théologique IIa-IIae 
-

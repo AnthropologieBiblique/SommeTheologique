@@ -5,7 +5,8 @@ tags :
 
 ### Ce nom « Dieu » est-il communicable ?
 
-Objections :1. Il semble que ce nom « Dieu » soit communicable. A quiconque, en effet, est communiquée la réalité signifiée par le nom, le nom lui-même est communiqué. Or nous avons dit que le nom « Dieu » signifie la nature divine, laquelle est communicable à d'autres, selon le 2° épître de Pierre (1, 4) : « Il nous a donné de grandes et précieuses promesses, afin de vous rendre ainsi participants de la nature divine. » Donc le nom « Dieu » est communicable. 
+###### arg. 1
+Il semble que ce nom « Dieu » soit communicable. A quiconque, en effet, est communiquée la réalité signifiée par le nom, le nom lui-même est communiqué. Or nous avons dit que le nom « Dieu » signifie la nature divine, laquelle est communicable à d'autres, selon le 2° épître de Pierre (1, 4) : « Il nous a donné de grandes et précieuses promesses, afin de vous rendre ainsi participants de la nature divine. » Donc le nom « Dieu » est communicable. 
 
 ###### arg. 2
 Seuls les noms propres sont incommunicables ; or ce nom « Dieu » n'est pas un nom propre, c'est une appellation : la preuve, c'est qu'il se met au pluriel, ainsi qu'en témoigne le Psaume (82, 6) : « J'ai dit : vous êtes des dieux. » 
@@ -14,7 +15,7 @@ Seuls les noms propres sont incommunicables ; or ce nom « Dieu » n'est pas un 
 Le nom « Dieu » tire son origine de l'opération comme on l'a dit à l'article précédent. Mais les autres noms divins qui ont pour origine soit les opérations de Dieu, soit ses oeuvres, sont communicables, comme bon, sage, etc. Donc le nom « Dieu », lui aussi, est communicable. 
 
 ###### s.c.
-on lit dans la Sagesse (14, 21) : « Ils ont donné au bois et à la pierre le nom incommunicable », et il s'agit du nom de la divinité. 
+On lit dans la Sagesse (14, 21) : « Ils ont donné au bois et à la pierre le nom incommunicable », et il s'agit du nom de la divinité. 
 
 ###### resp.
 Un nom peut être communicable de deux manières : proprement, ou métaphoriquement. Un nom est communicable proprement, quand il est communicable à plusieurs selon toute sa signification. Il est communicable par métaphore quand il est communicable à plusieurs selon l'un des caractères inclus dans sa signification. Ainsi le nom « lion » est commun au sens propre à tous les animaux en qui se trouve la nature signifiée par ce mot ; par métaphore, il est communiqué à tous les êtres ayant quelque chose de léonin, comme l'audace ou le courage, qui les fait appeler lions par métaphore. 

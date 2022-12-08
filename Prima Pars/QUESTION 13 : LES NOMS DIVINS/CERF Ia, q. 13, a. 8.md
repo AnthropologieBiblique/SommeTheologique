@@ -6,7 +6,7 @@ tags :
 ### Ce nom « Dieu » signifie-t-il la nature de Dieu, ou son opération ?
 
 ###### arg. 1
-Il semble que ce nom ne soit pas un nom de nature. Le Damascène dit en effet : « Dieu (theos) vient de théein qui veut dire pourvoir à toutes choses, prendre soin de toutes choses ; ou bien de aithein qui signifie brûler, car « notre Dieu est un feu dévorant » (Dt 4, 24) ; ou bien encore de théâsthai c'est-à-dire voir toutes choses. Or, tout cela désigne des opérations, et non une nature. 
+Il semble que ce nom ne soit pas un nom de nature. Le Damascène dit en effet : « Dieu (*theos*) vient de *théein* qui veut dire pourvoir à toutes choses, prendre soin de toutes choses ; ou bien de *aithein* qui signifie brûler, car « notre Dieu est un feu dévorant » (Dt 4, 24) ; ou bien encore de *théâsthai* c'est-à-dire voir toutes choses. » Or, tout cela désigne des opérations, et non une nature. 
 
 ###### arg. 2
 Un être est nommé par nous selon qu'il est connu ; or la nature divine nous est inconnue. Donc ce nom « Dieu » n'exprime pas la nature divine. 

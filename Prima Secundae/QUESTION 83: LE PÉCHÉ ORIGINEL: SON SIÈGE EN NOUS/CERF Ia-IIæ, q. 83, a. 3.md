@@ -15,7 +15,7 @@ Le péché originel se transmet par la semence charnelle. Mais il y a d'autres p
 L'intelligence passe avant la volonté, puisqu'il n'y a de volonté que pour un bien saisi intellectuellement. Donc si le péché originel infecte toutes les puissances de l'âme, il semble qu'il doive commencer par l'intelligence, puisqu'elle est la première. 
 
 ###### s.c.
-S. Anselme dith que la justice originelle est la rectitude de la volonté. C'est dire qu'elle regarde d'abord la volonté. Son contraire, le péché originel, regarde donc aussi la volonté avant toute autre puissance. 
+S. Anselme dit que la justice originelle est la rectitude de la volonté. C'est dire qu'elle regarde d'abord la volonté. Son contraire, le péché originel, regarde donc aussi la volonté avant toute autre puissance. 
 
 ###### resp.
 Dans l'infection originelle il y a deux aspects à considérer. D'abord son inhérence à un sujet, et de ce côté elle regarde, comme nous l'avons dit, l'essence de l'âme. Ensuite, il faut considérer son inclination à l'acte, et de cette façon elle regarde les puissances de l'âme. Il faut donc qu'elle regarde avant tout celle des facultés qui est la première dans l'inclination à pécher. Or d'après ce que nous avons dit plus haut, c'est la volonté. Donc le péché originel regarde d'abord la volonté. 

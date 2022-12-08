@@ -9,10 +9,10 @@ tags :
 Il semble bien que non, puisqu'il est donné, dit S. Grégoire, contre " l'hébétude d'esprit " et que beaucoup qui ont la grâce souffrent encore de cette hébétude d'esprit. Le don d'intelligence n'est donc pas chez tous ceux qui ont la grâce. 
 
 ###### arg. 2
-Dans le domaine de la connaissance, il n'y a que la foi qui semble nécessaire au salut, car " par la foi le Christ fait son habitation dans no coeurs " (Ep 3, 17). Mais ceux qui ont la foi n'ont pas tous le don d'intelligence; bien plus, dit S. Augustin " ceux qui croient doivent prier pour avoir l'intelligence ". Donc le don d'intelligence n'est pas nécessaire pour le salut, et il n'est pas chez tous ceux qui ont la grâce. 
+Dans le domaine de la connaissance, il n'y a que la foi qui semble nécessaire au salut, car " par la foi le Christ fait son habitation dans nos coeurs " (Ep 3, 17). Mais ceux qui ont la foi n'ont pas tous le don d'intelligence; bien plus, dit S. Augustin " ceux qui croient doivent prier pour avoir l'intelligence ". Donc le don d'intelligence n'est pas nécessaire pour le salut, et il n'est pas chez tous ceux qui ont la grâce. 
 
 ###### arg. 3
-Ce qui est commun à tous ceux qui ont la grâce ne leur est jamais retiré tant qu'ils demeurent en état de grâce. Or la grâce de l'intelligence et des autres dons, selon S. Grégoire, " quelque fois se retire utilement, car parfois, tandis que l'esprit s'élève par l'intelligence qu'il a de chose sublimes, il traîne paresseusement par une lourde hébétude dans des choses infimes et viles ". Donc le don d'intelligence n'existe pas chez tous ceux qui ont la grâce. 
+Ce qui est commun à tous ceux qui ont la grâce ne leur est jamais retiré tant qu'ils demeurent en état de grâce. Or la grâce de l'intelligence et des autres dons, selon S. Grégoire, " quelque fois se retire utilement, car parfois, tandis que l'esprit s'élève par l'intelligence qu'il a de choses sublimes, il traîne paresseusement par une lourde hébétude dans des choses infimes et viles ". Donc le don d'intelligence n'existe pas chez tous ceux qui ont la grâce. 
 
 ###### s.c.
 il est dit dans le Psaume (82, 5): " Sans savoir, sans comprendre, ils marchent dans les ténèbres. " Mais personne, s'il a la grâce, ne marche dans les ténèbres, selon ce qui est dit en S. Jean (8, 12): " Celui qui me suit ne marche pas dans les ténèbres. " Donc personne, ayant la grâce, n'est privé du don d'intelligence. 

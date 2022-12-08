@@ -22,7 +22,9 @@ Nous l'avons montré à l'Article précédent: le Christ a souffert volontaireme
 
 1° Selon sa volonté éternelle, il a ordonné par avance la passion du Christ à la libération du genre humain, selon cette prophétie d'Isaïe (53, 6): " Le Seigneur a fait retomber sur lui l'iniquité de nous tous. " Et il ajoute: " Le Seigneur a voulu le broyer par la souffrance. " 
 
-2° Il lui a inspiré la volonté de souffrir pour nous, en infusant en lui la charité. Aussi Isaïe ajoute-t-il " Il s'est livré en sacrifice parce qu'il l'a voulu. " 3° Il ne l'a pas mis à l'abri de la passion, mais il l'a abandonné à ses persécuteurs. C'est pourquoi il est écrit (Mt 27, 46) que, sur la croix, le Christ disait: " Mon Dieu, mon Dieu, pourquoi m'as-tu abandonné? " Parce que, remarque S. Augustin Dieu a abandonné le Christ à ses persécuteurs. 
+2° Il lui a inspiré la volonté de souffrir pour nous, en infusant en lui la charité. Aussi Isaïe ajoute-t-il " Il s'est livré en sacrifice parce qu'il l'a voulu. " 
+
+3° Il ne l'a pas mis à l'abri de la passion, mais il l'a abandonné à ses persécuteurs. C'est pourquoi il est écrit (Mt 27, 46) que, sur la croix, le Christ disait: " Mon Dieu, mon Dieu, pourquoi m'as-tu abandonné? " Parce que, remarque S. Augustin, Dieu a abandonné le Christ à ses persécuteurs. 
 
 ###### ad 1
 Il est impie et cruel de livrer un homme innocent à la passion et à la mort contre sa volonté. Ce n'est pas ainsi que le Père a livré le Christ, mais en lui inspirant la volonté de souffrir pour nous. Par là on constate tout d'abord la sévérité de Dieu qui n'a pas voulu remettre le péché sans châtiment, ce que souligne l'Apôtre (Rm 8, 32): " Il n'a pas épargné son propre Fils "; et sa bonté en ce que l'homme ne pouvant pas satisfaire en souffrant n'importe quel châtiment, il lui a donné quelqu'un qui satisferait pour lui, ce que l'Apôtre a souligné ainsi: " Il l'a livré pour nous tous. " Et il dit (Rm 3, 25): " Lui dont Dieu a fait notre propitiation par son sang. " 

@@ -2,6 +2,7 @@
 tags : 
 - Summa/IIa-IIæ/q.8
 ---
+Il faut étudier maintenant ce qui concerne le don d'intelligence (Q. 8) et le don de science ([[CERF IIa-IIæ, q. 9|Q. 9]]), qui correspondent à la vertu de foi. 
 
 ## LE DON D'INTELLIGENCE
 

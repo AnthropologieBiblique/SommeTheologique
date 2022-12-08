@@ -40,11 +40,6 @@ Les rapports idéaux sont objet de la connaissance divine ; leur multiplicité n
 ###### ad 5
 La route est la même d'un point à un autre, et vice versa : mais les directions sont différentes. On ne peut donc pas conclure de là que la relation de père à fils et sa réciproque soient identiques ; on pourrait seulement le conclure de quelque réalité absolue qui serait interposée entre eux. 
 
-Nous avons exposé tout d'abord les notions qu'il semblait nécessaire de connaître touchant les processions et les relations ; il nous faut maintenant aborder l'étude des Personnes. Elle comprendra deux parties : les Personnes considérées en ellesmêmes, et les Personnes comparées entre elles. Dans la première, nous devrons d'abord considérer les Personnes en général, puis chaque Personne en particulier. 
-
-L'étude des Personnes en général comporte quatre questions : 1° La signification du terme « personne » (Q. 29) 2° Le nombre des Personnes (Q. 30) 3° Les attributs que ce nombre implique ou exclut, tels ceux qui évoquent diversité, similitude, etc. (Q. 31). 4° Notre connaissance des Personnes (Q. 32). 
-
-
 
 
 

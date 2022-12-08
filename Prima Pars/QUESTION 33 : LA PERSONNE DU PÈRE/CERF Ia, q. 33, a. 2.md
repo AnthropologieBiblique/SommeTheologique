@@ -9,7 +9,7 @@ tags :
 Le nom de « père » signifie une relation, alors que la personne est une substance individuelle : « Père » n'est donc pas un nom propre de personne. 
 
 ###### arg. 2
-Par ailleurs, « celui qui engendre » est une désignation plus générale que « père » ; car tout père engendre, mais la réciproque n'est pas vraie. Or, le nom plus général convient plus proprement pour nommer Dieu, on l'a vu. Donc « Celui qui engendre, le Géniteur » seraient des noms plus propres que « le Père » pour désigner une Personne divine. 
+Par ailleurs, « celui qui engendre » est une désignation plus générale que « père » ; car tout père engendre, mais la réciproque n'est pas vraie. Or, le nom plus général convient plus proprement pour nommer Dieu, on l'a vu^[[[CERF Ia, q. 13, a. 11]]]. Donc « Celui qui engendre, le Géniteur » seraient des noms plus propres que « le Père » pour désigner une Personne divine. 
 
 ###### arg. 3
 Un nom figuré ne peut pas être le nom propre de quelqu'un. Or c'est par métaphore que nous qualifions notre verbe d'« engendré », de « fruit » ; par métaphore aussi, par suite, que nous nommons « père » le principe du verbe. En Dieu, par conséquent, le Principe du Verbe ne peut pas s'appeler Père au sens propre. 

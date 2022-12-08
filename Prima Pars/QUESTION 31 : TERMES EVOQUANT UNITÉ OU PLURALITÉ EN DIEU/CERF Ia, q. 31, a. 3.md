@@ -14,7 +14,8 @@ Ce qu'on peut adjoindre à un nom essentiel, en Dieu, peut s'attribuer à chaque
 ###### arg. 3
 Si le mot « seul » se trouve adjoint à un terme essentiel, l'exclusion vise ou bien un prédicat personnel ou bien un prédicat essentiel. Elle ne vise pas un prédicat personnel, car il est faux de dire : « Dieu seul est Père », puisque l'homme l'est aussi. Elle ne vise pas non plus un prédicat essentiel : en effet, si la proposition « Dieu seul crée » était vraie, celle-ci le serait aussi, à ce qu'il semble : « le Père seul crée » ; car ce qui est vrai de Dieu, l'est aussi du Père. Or la dernière proposition est fausse, puisque le Fils aussi est créateur. C'est donc que le mot « seul » ne peut s'adjoindre à un terme essentiel, en Dieu. 
 
-En sens contraire : On lit dans la 1° épître à Timothée (1,17) : « Au roi immortel des siècles, invisible, seul Dieu... » 
+###### s.c.
+En sens contraire, on lit dans la 1° épître à Timothée (1,17) : « Au roi immortel des siècles, invisible, seul Dieu... » 
 
 ###### resp.
 Le mot « seul » peut s'employer de deux façons : « catégorématique » ou « syncatégorématique». On appelle « catégorématique » le terme qui pose purement et simplement dans le sujet la chose qu'il signifie ; c'est le cas de « blanc » dans l'expression : « l'homme blanc ». Pris ainsi, le mot « seul » ne peut absolument pas être apposé à un terme quelconque en Dieu ; il y poserait une solitude, d'où il suivrait que Dieu est solitaire : et cela vient d'être exclu. 

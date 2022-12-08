@@ -35,7 +35,7 @@ Même Réponse à la seconde difficulté : quand on attribue au Père une perfec
 Le terme exclusif n'exclut pas ce qui est compris dans la notion même du terme auquel il est joint et ne fait qu'un sujet avec lui : ce qui est le cas de la partie et de l'universel. Mais le Père et le Fils sont deux suppôts distincts : le cas n'est donc pas le même. 
 
 ###### ad 4
-Nous ne disons pas, sans plus, que « seul le Fils est le Très-Haut » ; nous disons que seul il est « le TrèsHaut avec le Saint-Esprit dans la gloire de Dieu le Père ». 
+Nous ne disons pas, sans plus, que « seul le Fils est le Très-Haut » ; nous disons que seul il est « le Très-Haut avec le Saint-Esprit dans la gloire de Dieu le Père ». 
 
 
 

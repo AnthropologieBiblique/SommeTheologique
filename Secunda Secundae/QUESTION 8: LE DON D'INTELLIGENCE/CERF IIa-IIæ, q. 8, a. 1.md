@@ -6,7 +6,7 @@ tags :
 ### L'intelligence est-elle un don de l’Esprit Saint?
 
 ###### arg. 1
-Il ne semble pas. Car les dons de la grâce sont distincts de ceux de la nature ils y sont surajoutés. Mais comme le montre Aristote, l'intelligence est dans l'âme un certain habitus naturel par lequel sont connus les principes naturellement évidents. On ne doit donc pas en faire un don de l'Esprit Saint. 
+Il ne semble pas. Car les dons de la grâce sont distincts de ceux de la nature : ils y sont surajoutés. Mais comme le montre Aristote, l'intelligence est dans l'âme un certain habitus naturel par lequel sont connus les principes naturellement évidents. On ne doit donc pas en faire un don de l'Esprit Saint. 
 
 ###### arg. 2
 Comme on le voit chez Denys, les dons divins sont participés par les créatures selon la proportion et le mode de celles-ci. Or le mode de la nature humaine, c'est de connaître la vérité, non pas d'une manière simple, ce qui est essentiel à l'intelligence, mais d'une manière discursive, ce qui est le propre de la raison, comme le montre aussi Denys. Donc la connaissance divine qui est donnée aux hommes doit être appelée plutôt un don de raison qu'un don d'intelligence. 
