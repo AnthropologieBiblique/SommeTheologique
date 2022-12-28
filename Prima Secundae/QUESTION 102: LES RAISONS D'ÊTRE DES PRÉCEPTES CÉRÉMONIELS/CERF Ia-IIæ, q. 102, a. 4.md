@@ -32,7 +32,8 @@ Il ne doit y avoir rien de superflu dans les oeuvres de Dieu, puisqu'il en est d
 ###### arg. 9
 La consécration extérieure signifie la sainteté intérieure qui a son siège dans l'âme. Il ne convenait donc pas que l'on consacrât le tabernacle et ses fournitures, qui sont des objets inanimés. 
 
-10. On lit dans le Psaume (34, 2) « Je bénirai le Seigneur en tout temps, sa louange est à tout moment dans ma bouche. » Il ne convenait donc pas de réserver à certains jours déterminés la célébration des fêtes qui ont pour objet de louer Dieu. Tout cela donne à penser que les dispositions cérémonielles relatives aux réalités sacrées ne comportent pas d'explication satisfaisante. 
+###### arg. 10
+On lit dans le Psaume (34, 2) « Je bénirai le Seigneur en tout temps, sa louange est à tout moment dans ma bouche. » Il ne convenait donc pas de réserver à certains jours déterminés la célébration des fêtes qui ont pour objet de louer Dieu. Tout cela donne à penser que les dispositions cérémonielles relatives aux réalités sacrées ne comportent pas d'explication satisfaisante. 
 
 ###### s.c.
 on dit dans l'épître aux Hébreux (8, 4 s): « Ceux qui offrent des oblations selon la loi effectuent le service d'une copie et d'une ombre des réalités célestes, selon la réponse donnée à Moïse lorsqu'il dut confectionner le tabernacle: "Regarde, lui dit Dieu, et fais tout suivant le modèle qui t'a été présenté sur la montagne." » Exprimer l'image des réalités célestes 21 est éminemment raisonnable; par conséquent les prescriptions dont nous nous occupons étaient raisonnablement fondées. 
@@ -97,7 +98,8 @@ La raison figurative consiste à voir dans les panneaux qui formaient le taberna
 ###### ad 9
 La consécration du tabernacle et de ses accessoires avait littéralement pour motif de leur attirer plus de respect, cette consécration les affectant au culte divin. - Au sens figuratif, elle signifiait la consécration spirituelle du tabernacle vivant, c’est-à-dire des fidèles qui constituent l'Église du Christ. 
 
-10. Il ressort du livre des Nombres (28 et 29) que la loi ancienne connaissait sept solennités revenant à date fixe, et une solennité ininterrompue. Il y avait en effet une fête continuelle, car tous les jours, soir et matin, on immolait un agneau et, par cette célébration ininterrompue du sacrifice perpétuel, était symbolisée la perpétuité de la béatitude divine. 
+###### ad 10
+Il ressort du livre des Nombres (28 et 29) que la loi ancienne connaissait sept solennités revenant à date fixe, et une solennité ininterrompue. Il y avait en effet une fête continuelle, car tous les jours, soir et matin, on immolait un agneau et, par cette célébration ininterrompue du sacrifice perpétuel, était symbolisée la perpétuité de la béatitude divine. 
 
 Parmi les fêtes périodiques, il y avait d'abord celle qui se renouvelait chaque semaine; C'était la solennité du sabbat, célébrée comme nous l'avons dit pour rappeler le souvenir de la création. - Une autre revenait chaque mois, c'était la néoménie, dont la célébration rappelait l'action du gouvernement divin, car en ce bas monde la plupart des changements sont liés à des mouvements lunaires. Et si l'on célébrait cette fête à la nouvelle lune et non pas à la pleine lune, c'était pour s'opposer au culte idolâtrique dont les sectateurs sacrifiaient à la lune en son plein. - Les deux bienfaits en question intéressant tout le genre humain, ces fêtes devaient revenir fréquemment. 
 
