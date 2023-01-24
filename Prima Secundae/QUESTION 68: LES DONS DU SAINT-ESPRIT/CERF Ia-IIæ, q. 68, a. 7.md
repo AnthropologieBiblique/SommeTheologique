@@ -5,7 +5,8 @@ tags :
 
 ### Les rapports mutuels entre les dons
 
-Objections: Il semble que la dignité des dons ne soit pas à envisager selon leur énumération par Isaïe (11,2). En effet, ce qui semble le plus important dans les dons, c'est ce que Dieu requiert de l'homme par-dessus tout. Or c'est la crainte, car il est écrit au Deutéronome (10,12): « Et maintenant, Israël, que te demande le Seigneur ton Dieu, sinon que tu craignes le Seigneur ton Dieu? » Et en Malachie (1,6): « Si c'est moi le Seigneur, où est la crainte qui M'est due? » Il semble donc que la crainte, qui est énumérée en dernier, n'est pas le plus infime des dons mais le plus grand. 
+###### arg. 1
+Il semble que la dignité des dons ne soit pas à envisager selon leur énumération par Isaïe (11,2). En effet, ce qui semble le plus important dans les dons, c'est ce que Dieu requiert de l'homme par-dessus tout. Or c'est la crainte, car il est écrit au Deutéronome (10,12): « Et maintenant, Israël, que te demande le Seigneur ton Dieu, sinon que tu craignes le Seigneur ton Dieu? » Et en Malachie (1,6): « Si c'est moi le Seigneur, où est la crainte qui M'est due? » Il semble donc que la crainte, qui est énumérée en dernier, n'est pas le plus infime des dons mais le plus grand. 
 
 ###### arg. 2
 La piété semble être un bien universel. L'Apôtre dit (1 Tm 4,8) qu'elle est « utile à tout ». Mais un bien universel l'emporte sur les biens particuliers. Donc la piété, que l'énumération met l'avant-dernière, paraît être le plus excellent des dons. 

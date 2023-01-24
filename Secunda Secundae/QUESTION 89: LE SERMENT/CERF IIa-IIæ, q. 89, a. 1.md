@@ -12,7 +12,7 @@ Il semble que jurer ne soit pas prendre Dieu à témoin. Car lorsqu'on tire argu
 Produire un témoin, ce n'est pas lui rendre quelque chose. Or jurer c'est rendre quelque chose Dieu; car on lit en Matthieu (5, 33): « Tu rendras tes serments au Seigneur. » Et S. Augustin dit que jurer c'est « rendre à Dieu droit à la vérité ». jurer n'est donc pas prendre Dieu à témoin. 
 
 ###### arg. 3
-L'office du juge diffère de celui du témoin. Mais il arrive que le serment consiste à implorer le jugement de Dieu, selon le Psaume (7, 5): « Si j'ai rendu le mal à ceux qui m'ont fait du bien, que je sois renversé par mes ennemis. » jurer n'est donc pas prendre Dieu à témoin. 
+L'office du juge diffère de celui du témoin. Mais il arrive que le serment consiste à implorer le jugement de Dieu, selon le Psaume (7, 5): « Si j'ai rendu le mal à ceux qui m'ont fait du bien, que je sois renversé par mes ennemis ». Jurer n'est donc pas prendre Dieu à témoin. 
 
 ###### s.c.
 S. Augustin dit, dans un sermon sur le parjure: « Que signifie: "Jurer par Dieu", sinon: Dieu est témoin? » 
